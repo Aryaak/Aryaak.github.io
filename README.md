@@ -1,1 +1,0 @@
-# aryarizky.github.io
